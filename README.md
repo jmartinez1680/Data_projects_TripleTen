@@ -86,7 +86,7 @@ A funnel and cohort analysis evaluating how users progress through engagement st
 
 \## Contact
 
-\*\*LinkedIn:\*\* (Insert your LinkedIn Profile URL here)  
+\*\*LinkedIn:\*\* www.linkedin.com/in/joshua-j-l-martinez  
 
-\*\*Email:\*\* (Optional)
+
 
